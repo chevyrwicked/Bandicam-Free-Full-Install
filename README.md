@@ -1,0 +1,1 @@
+# Bandicam-Free-Full-Install
